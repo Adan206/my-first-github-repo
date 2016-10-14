@@ -1,6 +1,6 @@
 # Secrets
-Think not some knowledge rests with thee *alone*;
-Why, even God's stupendous **secret**, _Death_,
+Think not some knowledge rests with thee *alone*; 
+Why, even God's stupendous **secret**, _Death_,[br]
 We one by one, with our expiring *breath*,
 Do pale with wonder seize and make our own;
 The bosomed **treasures** of the earth are *shown*,
