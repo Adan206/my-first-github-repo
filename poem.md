@@ -16,6 +16,6 @@ hall drag thy ~~secret~~ out into the _light_.
         
 --Ella Wheeler Wilcox
         
-(http://www.public-domain-poetry.com/ella-wheeler-wilcox/secrets-33032
+http://www.public-domain-poetry.com/ella-wheeler-wilcox/secrets-33032
         
         
